@@ -7,3 +7,4 @@
 ## Swahili
 
 - https://2seedsswahili.wordpress.com/
+- https://kaikki.org/dictionary/Swahili/
